@@ -1,6 +1,8 @@
 # science
 
 ## YouTubes
+* Extracting Iron from Cereal
+  * https://www.youtube.com/watch?v=3IWbThJpGXc
 * Gravity Visualized
   * https://www.youtube.com/watch?v=MTY1Kje0yLg
 * How to save 51 billion lives for 68 cents with simple Engineering
