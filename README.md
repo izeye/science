@@ -1,5 +1,7 @@
 # science
 ## TED Ed
+* How does a jellyfish sting? - Neosha S Kashef
+  * https://www.youtube.com/watch?v=Pu_ijC8HFRU
 * What causes cavities? - Mel Rosenberg
   * https://www.youtube.com/watch?v=zGoBFU1q4g0
 * You are your microbes - Jessica Green and Karen Guillemin
