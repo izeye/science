@@ -8,6 +8,8 @@
    * https://m.youtube.com/watch?v=yQduHyiWe9o
 * The loathsome, lethal mosquito - Rose Eveleth
   * https://m.youtube.com/watch?v=IkmjCmvfeFI
+* The otherworldly creatures in the ocean's deepest depths - Lidia Lins
+  * https://www.youtube.com/watch?v=U69LIr0OrNc
 * What causes cavities? - Mel Rosenberg
   * https://www.youtube.com/watch?v=zGoBFU1q4g0
 * What would happen if you didn’t drink water? - Mia Nacamulli
