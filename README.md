@@ -2,6 +2,8 @@
 ## TED Ed
 * How does a jellyfish sting? - Neosha S Kashef
   * https://www.youtube.com/watch?v=Pu_ijC8HFRU
+* How the food you eat affects your gut - Shilpa Ravella
+  * https://m.youtube.com/watch?v=1sISguPDlhY
 * Jellyfish predate dinosaurs. How have they survived so long? - David Gruber
    * https://m.youtube.com/watch?v=yQduHyiWe9o
 * The loathsome, lethal mosquito - Rose Eveleth
